@@ -1,1 +1,1 @@
-# gayesu taslak
+# taslak
